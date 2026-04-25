@@ -7,11 +7,6 @@
 </p>
 
 <p align="center">
-<img src="https://pbs.twimg.com/media/HBhgppQbUAQvZlu?format=jpg&name=small"> <br>
-<a href="https://github.com/HerWordsKill">Devoted to my angel since 13/12/2025</a> <br>
-  Credit art for Lilili <br>
-  <br>
-  <img src="https://pbs.twimg.com/media/HFF14U-WEAA46CC?format=jpg&name=small" width=350> <br>
-  Real picture of me <br>
-  I'm stuck in Silent Hill
+<img src="https://cdn.discordapp.com/attachments/1411734266521587723/1497624205964083251/untitled_72.png?ex=69ee32bb&is=69ece13b&hm=020ea967e9dbb4b2922b086e0e7dcfaef6150f684afde14cf38196e06c15d7b9" width=400> <img src="https://pbs.twimg.com/media/HFF14U-WEAA46CC?format=jpg&name=small" width=400> <br>
+<a href="https://github.com/HerWordsKill">blessed 13/12/2025</a> <br>
 </p>
