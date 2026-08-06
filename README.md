@@ -6,4 +6,6 @@
 ❝𝑾𝒉𝒐'𝒔 𝒈𝒐𝒏𝒏𝒂 𝒕𝒂𝒌𝒆 𝒄𝒂𝒓𝒆 𝒐𝒇 𝒕𝒉𝒆 𝒇𝒂𝒍𝒍𝒆𝒏 𝒂𝒏𝒈𝒆𝒍 𝒊𝒇 𝒊𝒕 𝒘𝒂𝒔𝒏'𝒕 𝒎𝒆?❞ <br>
   <img src="https://64.media.tumblr.com/47be83d46ee47e8f356cdc34482ec9b1/c8f93d60cbf5d3c8-5a/s1280x1920/ca10b25832026ec2c8ca5551bcb5404bb0f03256.png"> <br>
   <a href="https://mycrisisshow.straw.page">𝘚𝘵𝘳𝘢𝘸</a> · <a href="https://thecrisisshow.atabook.org/">𝘈𝘵𝘢</a> · <a href="https://pronouns.cc/@MyCrisisShow">𝘗𝘳𝘰𝘯𝘰𝘶𝘯𝘴</a> <br>
+  <br>
+  MOVED MAIN ACC TO <a href="https://www.github.com/CrisisShow">CrisisShow</a> PLEASE FOLLOW
 </p>
